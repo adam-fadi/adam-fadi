@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **devops**
 
-- 💬 Ask me about **postman**
+- 💬 Ask me about **Anythings**
 
 - 📫 How to reach me **ya509902@gmail.com**
 
